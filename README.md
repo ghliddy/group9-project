@@ -1,1 +1,1 @@
-# group9-project
+# Group 9: Seyong Chang, Liddy Grossman
